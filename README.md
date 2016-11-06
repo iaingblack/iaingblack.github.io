@@ -1,2 +1,0 @@
-# iaingblack.github.io
-Blog
